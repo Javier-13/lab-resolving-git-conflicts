@@ -29,3 +29,4 @@ but actually it is really early I guess so I have not a stabished role I want to
 * What is your career goal?
 -It is pretty normal I guess, something i like, useful for others and well paid, I would say 
 "not really ambicious tho" but nowadays I would ave to check it...
+
